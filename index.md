@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+Never give up. 
 
-Maybe say a some things about yourself.
+There will be posts about knowledge on various topics. 
 
-Or maybe what you plan to blog about.
+Thank you. 
+
+Hope you well. 
